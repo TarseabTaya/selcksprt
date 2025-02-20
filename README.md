@@ -1,4 +1,4 @@
-SELÇUKSPORTS 🎖️SELÇUKSPORTS CANLI MAÇ İZLE RESMİ ADRES 🎖️ GÜNCEL GİRİŞ OFFİCİAL 🎖️:selcksprt:# <a href="https://t.me/mackolik">Selcuksports.com</a>
+# <a href="https://t.me/mackolik">Selcuksports.com</a>
 # <a href="https://t.me/mackolik">TIKLA VE İZLE</a>
 
 <a href="https://t.me/mackolik" title="ResimLink - Resim Yükle"><img src="https://resmim.net/cdn/2025/02/20/NDHSrn.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
